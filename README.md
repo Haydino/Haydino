@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Haydino
+- 👀 I’m interested in BTD6 or other TD games :D
+- 🌱 I’m currently learning Nothing cuz summer breakkkk
+- 💞️ I’m looking to collaborate on Something random????
+- 📫 How to reach me you cant reach me at all >:D
